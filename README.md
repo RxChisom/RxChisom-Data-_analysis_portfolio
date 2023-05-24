@@ -2,5 +2,5 @@
 
 📥 You can send me an e-mail @blessingonyemelukwe@gmail.com
 
-My CV is C:\Users\Dell\Desktop\Resume-Chisom-Onyemelukwe_ Data Analyst.pdf
+My CV is https://acrobat.adobe.com/id/urn:aaid:sc:EU:123789a6-1c4a-4a11-90fe-77cc5cf46801
 
